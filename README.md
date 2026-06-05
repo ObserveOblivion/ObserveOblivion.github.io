@@ -1,2 +1,2 @@
 # observeoblivion.github.io
-Common Ground High School.
+School 3D Model
